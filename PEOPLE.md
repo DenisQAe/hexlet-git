@@ -1,1 +1,1 @@
-Kudelin Denis
+Kudelin Denis Sergeevich
